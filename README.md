@@ -3,8 +3,11 @@
 #### 小小博士豆
 
 
-## 编程
+## 钢琴
 
+![2018年6月宁波地铁百名儿童演出](https://github.com/l00c00l/Pictures/blob/master/img/IRIS_Ningbo_Metro_20180602_201216.jpg)
+
+![2018年6月小演奏家钢琴比赛](https://github.com/l00c00l/Pictures/blob/master/img/IRIS_LittlePlayer_20180603_104846.jpg)
 
 ## 作品
 
